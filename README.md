@@ -1,4 +1,4 @@
-### Hi there, I'm Vikas 👋
+### Hi there, I'm Vikas A Vastrad👋
 
 * 🔭 I’m Intrested in Data Analytics 
 * 🌱 I’m a Certified Data Analyst
